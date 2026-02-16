@@ -1,3 +1,6 @@
-# Tips for this week
+Week 1
+I  see myself as someone who naturally brings clarity, balance, and thoughtful direction into the spaces I’m part of, because I tend to understand people well and pick up on things that others might miss. I usually prefer to observe first, think things through carefully, and then speak once I feel I have something meaningful to add. I like looking at situations from different perspectives, weighing options, and making sure that whatever I say or do is fair, reasonable, and considerate of everyone involved. I feel like I’m someone who stays calm even when things get stressful, and that helps me support others and keep situations from becoming overwhelming or chaotic.
 
-Comment on the personality type identified in the questionnaire.  Discuss the role you hope to play in the team.
+I’m not really the type who needs attention or recognition, but I do enjoy being someone others can rely on for honest thoughts, steady guidance, or a balanced opinion. I value understanding over reacting, and I’d rather respond with patience and insight than with impulse. When I’m part of a team, I naturally try to make sure everyone feels heard, respected, and included, because I believe the best outcomes usually come from cooperation and mutual understanding. Overall, I see myself as someone who leads quietly, thinks deeply, communicates thoughtfully, and tries to leave every situation a little more peaceful, clear, and constructive than I found it.
+
+
