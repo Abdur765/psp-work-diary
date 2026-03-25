@@ -1,0 +1,1 @@
+on day 2 , i resumed my work of design the home-page,resolving the erros of home-page trying to align my code with MVVM architecture  and working further on other pages designing i.e on the insights page ,zone page etc .

@@ -1,0 +1,1 @@
+on day 3,i stopped the part of designing as i was adiviced to now work on connecting the database.I started my working on connecting the database so that the data should be dynamic and the pages shpuld be data driven.by the end of day-3 i got some code stuff,some new files  having errors .
