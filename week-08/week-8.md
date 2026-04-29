@@ -1,0 +1,1 @@
+In week-8,as a group we tried to work on social legal ethical and professional issues.Discussed what can be the possible issues that our app can face .we worked on finding some references like for example application which have faced some common  issues .I would be attaching a SLEP document that would be showing my contribution .
